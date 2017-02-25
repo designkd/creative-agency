@@ -1,2 +1,0 @@
-# creative-agency
-GitHub Pages
